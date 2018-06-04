@@ -79,3 +79,7 @@
 
 1. [汉堡](https://crypko.ai/#/profile/0xf8720e5998e2e05e05564a56bb911d867b5fa650)
     - 0xf8720e5998e2e05e05564a56bb911d867b5fa650
+    
+1. [hitsuki_1011(绯月）]（https://crypko.ai/#/profile/0xb999c738f5311a1a78df132081ebf54e055b950f）
+    - 0xb999c738f5311a1a78df132081ebf54e055b950f
+    -买一送一，活动可以送女儿哦~ 
